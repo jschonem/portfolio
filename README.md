@@ -1,1 +1,1 @@
-# Projects by Justin Schoneman
+# Justin Schoneman
